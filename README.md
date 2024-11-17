@@ -10,9 +10,7 @@ La **Huawei ICT Competition** es una competencia global diseñada para estudiant
 4. **Final Global:** Mayo 2025.
 
 ### Premios:
-- **Primer lugar:** $20,000 USD.
-- **Segundo lugar:** $15,000 USD.
-- **Tercer lugar:** $10,000 USD.
+- No hay premios definidos pa la global, pero pa la regional si aparece que los primeros 3 equipos ganan algo XD
 
 ---
 
